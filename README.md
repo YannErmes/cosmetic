@@ -1,0 +1,5 @@
+![ruth-cosmetica netlify app_(Samsung Galaxy S8+) (4)](https://github.com/user-attachments/assets/ca77a645-bf39-42ad-a1d4-d3524144854f)
+![ruth-cosmetica netlify app_(Samsung Galaxy S8+) (3)](https://github.com/user-attachments/assets/823463f2-d4df-42fa-9097-4e9c03b7fce4)
+![ruth-cosmetica netlify app_(Samsung Galaxy S8+) (2)](https://github.com/user-attachments/assets/2a010bd9-1a25-452c-8404-542716fa314e)
+![ruth-cosmetica netlify app_(Samsung Galaxy S8+) (1)](https://github.com/user-attachments/assets/5f9c2a1f-9ea0-4950-b27b-2321045bb0f0)
+![ruth-cosmetica netlify app_(Samsung Galaxy S8+)](https://github.com/user-attachments/assets/a9f589c1-a995-42b0-b44a-176c5a2f2c89)
